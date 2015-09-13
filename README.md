@@ -5,6 +5,6 @@ This is a personal statement of my mission regarding enlisting in the path for s
 
 ![Nick's Last Days](nick3.jpg "Nick's Last Days")
 
-![Nick Smiling](nick+smiling.jpg "Nick Smiles!")
+![Nick Smiling](nick+smiling1.jpg "Nick Smiles!")
 
-![Nick in the Hospital](Nick_hospital.jpeg "Nick in the Hospital" )
+
