@@ -3,5 +3,8 @@ This is a personal statement of my mission regarding enlisting in the path for s
 
 ![Nick a few days before death](nick2b.jpg "Nick a Day Before Death")
 
+![Nick's Last Days](nick3.jpg "Nick's Last Days")
+
+![Nick Smiling](nick+smiling.jpg "Nick Smiles!")
 
 ![Nick in the Hospital](Nick_hospital.jpeg "Nick in the Hospital" )
